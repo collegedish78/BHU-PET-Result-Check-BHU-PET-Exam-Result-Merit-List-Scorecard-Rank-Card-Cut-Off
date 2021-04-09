@@ -1,0 +1,2 @@
+# BHU-PET-Result-Check-BHU-PET-Exam-Result-Merit-List-Scorecard-Rank-Card-Cut-Off
+BHU PET Result: Banaras Hindu University (BHU) Releases the BHU PET Exam Result on its official site. Candidates can check the BHU PET Exam Result, Merit List, Scorecard, Rank Card &amp; Cut Off. Banaras Hindu University will release the BHU PET Result online mode through the official website. If there is a tie between any two applicants, the qualifying examination marks will be considered as the tie-breaker.
